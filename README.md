@@ -8,6 +8,6 @@ https://discord.gg/RtEpDwy2vj
 
 #
 # İLETİŞİM
-> Discord: ArviS#0011
+> Discord: arviis.
 
-> İnstagram: @arvis_here
+> İnstagram: @al.kann0
